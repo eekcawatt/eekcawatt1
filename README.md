@@ -3,7 +3,8 @@ Pioneering Technological Innovation in digital reserve currency(USD$). Dispensin
 fundamentals in sustainable energy valuable units "uniquely" packaged for
 EEKCAWATT $Energy-Based/Backed Virtual Currency. Let us scale your Database
 Transactions Handling service growth. A virtual mobile money reimagined in the form of 
-$ElectricityCoinTM,$GoldCoinTM, $HempCoinTM, $SunCoinTM for "inclusive" Global reach.
+$ElectricityCoinTM,$GoldCoinTM, $HempCoinTM, $SunCoinTM for "Inclusive Capitalism" Global market reach.
+
 "Innovating the customer onboard experience"--We are a form of secondary money that can
 be used as local digital reserve currency generation tool. Also, our energy exchange payment vehicle..
 
