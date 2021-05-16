@@ -7,7 +7,7 @@ $ElectricityCoinTM,$GoldCoinTM, $HempCoinTM, $SunCoinTM for "inclusive" Global r
 be used as local digital reserve currency generation tool. Also, our energy exchange payment vehicle..
 
 (EekcaWatt-On-Demand tm ): 
-Converts fossil, renewable and solar resource values into real-time transactions..
+Converts fossil, renewable and solar resource values into real-time transactions using our Algorithm...
 #php #laravel8 #platform #Algorithm #proprietary #topsecurity #paymentgateway
 
 EMAIL US : RFP2021@EEKCAWATT.COM FOR UPDATES.
