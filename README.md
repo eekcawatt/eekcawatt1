@@ -1,2 +1,2 @@
 # eekcawatt1
-Technological Innovation-Energy-Based Currency-$GoldCoinTM, $HempCoinTM, $SunCoinTM 
+Pioneering Technological Innovation: In $Energy-Based/Backed Virtual Currency-: $ElectricityCoinTM, $GoldCoinTM, $HempCoinTM, $SunCoinTM 
